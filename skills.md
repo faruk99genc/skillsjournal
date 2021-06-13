@@ -1,0 +1,1 @@
+yapıyoz bir şeyler kardaşım
